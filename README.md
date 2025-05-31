@@ -1,1 +1,0 @@
-# metallerin-asit-baz-tepkimesi
